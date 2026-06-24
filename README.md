@@ -1,1 +1,1 @@
-![Uploading Untitled94_20260624070536.png…]()
+Untitled94_20260624070536.png

@@ -1,2 +1,2 @@
-![Image Alt](https://github.com/Ronniechann/Ronniechann/blob/95a395ee0c5a5cee7aa86e5f0a9253c247660170/Untitled94_20260624070536.png)
+![Image Alt](blob:https://web.telegram.org/887b2076-d99e-4d6f-88f1-f493571ebf7a)
 ദ്ദി◝ ⩊ ◜.ᐟ
